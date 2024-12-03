@@ -2,7 +2,7 @@
 
 Welcome, Coin Master enthusiasts! If you’re an avid player of Coin Master, there’s some exciting news for you today. We’ve partnered with Coin Master to bring you a fantastic **exclusive offer**: **5000 Free Spins** with just a simple click. That’s right! You can unlock a massive boost to your Coin Master experience, all for free.
 
-### [👉CLICK HERE TO GET NOW FREE👈](https://freeforyou.xyz/cms/)
+### [👉CLICK HERE TO GET NOW FREE](https://freeforyou.xyz/cms/)
 
 Simply click on the **exclusive link** below to claim your free spins and get started on a new adventure!
 
